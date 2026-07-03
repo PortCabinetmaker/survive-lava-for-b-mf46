@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots Script smart offers the most advanced survive lava for brainrots Script, with undetectable and instant win. Perfect for
 
 
 
